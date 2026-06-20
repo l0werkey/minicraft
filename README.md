@@ -1,0 +1,2 @@
+![Minicraft](/media/banner.png)
+
